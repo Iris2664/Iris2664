@@ -2,7 +2,7 @@
 
 ### 💬About me
 
-💬I am Sakura Ayame. this is my handle.  
+💬I am Ayamemochi. this is my handle.  
 💼 I am a software developer and programmer👩‍💻 by profession.
 
 ### 🌱Qualification
