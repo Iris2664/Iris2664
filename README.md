@@ -2,7 +2,7 @@
 
 ### 💬About me
 
-💬I am Ayamemochi. this is my handle.  
+💬I am SHINONOME Ayame. this is my handle.  
 💼 I am a software developer and programmer👩‍💻 by profession.
 
 ### 🌱Qualification
